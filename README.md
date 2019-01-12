@@ -1,24 +1,37 @@
-# Telegram-Member-Scraper
-Telegram Member Scraper - Telegram auto group scraper.Export telegram group members, how to copy telegram group members, increase telegram channel members software
+<div class="row modulesTitle">
+<h1 class="col-xs-12 text-center" style="text-align: center;"><span style="color: #ff9900; background-color: #333300;">          Export telegram group members          </span></h1>
+<h1 class="col-xs-12 text-center" style="padding-left: 60px;"><em>Telegram Thunder</em></h1>
+</div>
 
-<h1 style="text-align: center;">Telegram Auto Group Scraper</h1>
-<h2 style="text-align: center;"><span style="color: #ffffff;">Export Telegram Group Members</span></h2>
-<h3 style="text-align: center;"><span style="color: #ffffff;">How To Copy Telegram Group Members</span></h3>
-<h4 style="text-align: center;"><span style="color: #ffffff;">Increase Telegram Channel Members Software</span></h4>
+<hr class="small" />
+
+<h3>Export Telegram Group Members</h3>
+<div class="container">
+<div class="row">
+<div class="col-xs-12">
+<div class="responsive-handler fr-view breakable" style="text-align: center;">
+
+Telegram Group Members Scraper
+How To Copy Telegram Group Member
+
+<strong>Available in stock : 2</strong>
+
+<img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5c089b9f053ee.jpg" alt="telegram thunder" />
 
 <hr />
 
-<pre>telegram username scraper, telegram marketing group, telegram chat scraper, telegram scraper bot, scrape telegram channel, telegram group scraper, scrape telegram channel python, how to scrape telegram messages, get telegram channel members, how to copy telegram group members, export member telegram, export telegram channel, how to get telegram members, add member telegram software, telegram auto cracked download, telegram auto free download, telegram auto member, Telegram Marketing Software, Telegram marketing tool, Add Member Telegram Software, Telegram Advertising Software, Telegram Member Adder Bot, add fake member to telegram channel free, add member for telegram, add fake member to telegram channel online, increase telegram channel members software, telegram member adder bot, fake telegram member generator, telegram auto member, add member fake telegram</pre>
+<em>From the list of numbers or user names you add to your favorite group</em>
+<em>It can also extract all user names for one or more of your desired group</em>
 
 <hr />
 
-<h3 style="text-align: center;"><em>From the list of numbers or user names you add to your favorite group</em>
-<em>It can also extract all user names for one or more of your desired group</em></h3>
-&nbsp;
-<pre></pre>
-<p style="text-align: center;"><img class="fr-fic fr-fil fr-dii aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5b7880dcf1b1f.jpg" width="670" height="461" /></p>
-<p style="text-align: center;"><img class="fr-fic fr-fir fr-dii aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5b7880cd7ad39.jpg" width="683" height="343" /></p>
+<img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5c089c030aadf.jpg" alt="tgMember Thunder" />
 
+<img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5c089c41e3968.jpg" alt="telegram thunder tgmember" />
+
+<img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5c089c62e1f15.jpg" alt="tgmember thunder software" width="668" height="437" />
+
+<img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5c089c7588f8f.jpg" alt="tgmember telegram group scraper" width="635" height="413" />
 
 <hr />
 
@@ -43,48 +56,91 @@ Telegram Member Scraper - Telegram auto group scraper.Export telegram group memb
  	<li>Limited support and updates</li>
  	<li>Possibility to provide a very accurate and complete report for each operation with CSV split and format</li>
  	<li>Core Edition under the Console App for programmers and Web Service enthusiasts for the program</li>
- 	<li>And hundreds of other special features</li>
 </ul>
+And hundreds of other special features.
 
 <hr />
 
-<h3 style="text-align: center;">Buy online
-and
-After payment, Immediately will be emailed your account information and access link.</h3>
-<h4 style="text-align: center;"><strong>Price:$149</strong></h4>
-
-<hr />
-<p style="text-align: center;"><a href="https://www.coinpayments.net/index.php?cmd=_pay&amp;reset=1&amp;merchant=079ffcbe51728fbc75bf84a5bb20efdd&amp;item_name=Telegram-Thunder&amp;amountf=149&amp;allow_extra=1&amp;want_shipping=0&amp;success_url=http://dl.tgmember.com/&amp;currency=USD" target="_blank" rel="noopener noreferrer"><img class="fr-fic fr-dib aligncenter" src="https://cdn-cms.f-static.com/uploads/1377638/2000_5b8081918594b.png" alt="pay" width="498" height="145" /></a></p>
 
 
 <hr />
 
+<h3 style="text-align: center;">Buy Telegram Thunder online</h3>
+<p style="text-align: left;">and
+2~12 hours after payment, software and license key will be mail to you.</p>
+<p style="text-align: left;">You need wait 6 to 12 hours to activate your license</p>
+
+<h2 style="text-align: center;"><strong><s>$129</s></strong></h2>
+<strong>Price (Insignificant amount) : </strong><strong>$109</strong></div>
+</div>
+<div></div>
+<div class="col-xs-12">
+<div class="responsive-handler fr-view breakable" style="text-align: center;">
+<table class="tab" border="0" width="100%" cellspacing="0" cellpadding="0">
+<tbody>
+<tr>
+<td colspan="2" align="center">
+<h3><strong>Crypto payment method</strong></h3>
+</td>
+</tr>
+<tr>
+<td align="center"><strong>Pay by Bitcoin</strong>
+<a href="https://www.blockchain.com/btc/payment_request?address=3LvTMMzCgScTXNq9LsoWJ4mw9VAegJz6NW&amp;message=Telegram+Thunder+Software&amp;amount_local=109&amp;currency=USD&amp;nosavecurrency=true" target="_blank" rel="noopener noreferrer"><img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://www.tgmember.com/button-large.png" width="114" height="40" /></a></td>
+<td align="center"><strong>Pay by BTC, LTC, BCH, ETH, ...</strong>
+<a href="https://www.coinpayments.net/index.php?cmd=_pay&amp;reset=1&amp;merchant=079ffcbe51728fbc75bf84a5bb20efdd&amp;allow_extra=1&amp;want_shipping=0&amp;success_url=https://t.me/tgMemberRobot&amp;currency=USD&amp;amountf=109&amp;item_name=Telegram-Thunder" target="_blank" rel="noopener noreferrer"><img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://www.tgmember.com/coinpayments.jpg" width="140" height="50" /></a></td>
+</tr>
+</tbody>
+</table>
+<table class="tab" border="0" width="100%" cellspacing="0" cellpadding="0">
+<tbody>
+<tr>
+<td colspan="2" align="center">
+<h3><strong>Iranian payment ways</strong></h3>
+</td>
+</tr>
+<tr>
+<td align="center"><strong>idPay</strong>
+
+&nbsp;
+
+<a href="https://idpay.ir/tgMember/12000000" target="_blank" rel="noopener noreferrer"><img class="fr-fic fr-dib fr-rounded fr-shadow" src="https://www.tgmember.com/idpay.png" width="233" height="55" /></a></td>
+<td align="center"><strong>Zarinpal</strong>
+
+<a href="https://zarinp.al/tgMember/1200000" target="_blank" rel="noopener noreferrer"><img class="fr-fic fr-dib fr-rounded fr-shadow aligncenter" src="https://www.tgmember.com/zarinpal.png" width="290" height="103" /></a></td>
+</tr>
+</tbody>
+</table>
+<table class="tab" border="0" width="100%" cellspacing="0" cellpadding="0">
+<tbody>
+<tr>
+<td colspan="1" align="center">
+<h3><strong>Other payment ways</strong></h3>
+</td>
+</tr>
+<tr>
+<td align="center"><strong>Credit &amp; Debit card, Yandex, QIWI, ...</strong></td>
+</tr>
+</tbody>
+</table>
 <ul>
- 	<li style="text-align: left;">
-<pre>Get updates for free</pre>
-</li>
-</ul>
-<ul style="text-align: left;">
- 	<li>
-<pre>Usage Guide + English Video Tutorial</pre>
-</li>
-</ul>
-<ul>
- 	<li style="text-align: left;">
-<pre>Perform installation and configuration on your personal computer through the TeamViewer for free (if needed)</pre>
-</li>
+ 	<li>Get updates for free</li>
+ 	<li>If you need, we doing free installation and configuration on your personal computer</li>
+ 	<li>All features are fully written.</li>
+ 	<li>Also you can watch video of software on the our <a href="https://www.youtube.com/channel/UC_DHn8AJb-9hVYlPXLEA6rw/videos">YouTube</a> channel.</li>
+ 	<li>If you need to test, you can Monday and Wednesday tell to <a href="https://t.me/tgcustomerservice">@tgCustomerService</a>.</li>
+ 	<li>The volume of messages and the number of users is very high,</li>
+ 	<li>So, Please didn't ask question of admin about software.</li>
+ 	<li>If you did not received your order within 12 hours after completing your payment, contact admin with below ways.</li>
 </ul>
 
 <hr />
 
-<h4 style="text-align: center;"><em><a href="https://telegram.me/sajjad_021" target="_blank" rel="noopener noreferrer"><strong>Sajjad Taheri (Administrator)</strong></a></em></h4>
-<h4 style="text-align: center;"><em><strong><a href="mailto:tgMemberPlus@gmail.com" target="_blank" rel="noopener noreferrer">Mail:tgMemberPlus@gmail.com</a></strong></em></h4>
-<h4 style="text-align: center;"><em><a href="https://www.tgmember.com/telegram-software-robot/telegram-thunder-software.html" target="_blank" rel="noopener noreferrer"><strong>Phone:+989216973112</strong></a></em></h4>
+<blockquote><a href="https://telegram.me/tgMemberRobot" target="_blank" rel="noopener noreferrer">Sajjad Taheri (Administrator)</a>
 
-<hr />
+<a href="mailto:tgMemberOfficial@gmail.com" target="_blank" rel="noopener noreferrer">Mail:tgMemberOfficial@gmail.com</a>
 
-
-
-<hr />
-
-<h4 style="text-align: center;"></h4>
+Phone:+989216973112</blockquote>
+</div>
+</div>
+</div>
+</div>
